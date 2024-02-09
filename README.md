@@ -1,1 +1,1 @@
-# earthquake2023-2024
+# Earthquake 2023-2024
